@@ -1,0 +1,1 @@
+# skiddy_ng_c0de
